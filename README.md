@@ -14,7 +14,7 @@ This video is a collection of the funniest programming memes that every programm
 
 ## How to watch this video?
 
-Just click on the link: https://www.youtube.com/shorts/BXcWZI9R0to
+Just click on the link: https://www.youtube.com/watch?v=_BFloOvAjuo
 
 ## Final Thoughts
 
